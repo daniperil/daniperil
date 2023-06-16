@@ -1,6 +1,6 @@
 About me 🫀 ... read at your own discretion :warning::warning::warning:
 
-*** I work as a Systems Engineer. I focus on the creation of process models for systems 🌐, algorithm development 🍊 and crytographic functions ㊙️
+*** I work as a Systems Engineer. I focus on the creation of process models for systems 🌐, algorithm development 🍊, crytographic functions ㊙️ and quantum computing ⚛️
 
 *** Hobbies: - Bodybuilding :muscle:, Modern languages :symbols: and Modelling 🦺
 
